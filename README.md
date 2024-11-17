@@ -47,4 +47,4 @@ You can stream both series on **Netflix**!
 ---
 
 **Do I recommend these series?**  
-- Without a doubt! If you enjoy smart, thrilling heists with compelling characters, these shows are for you. 🖤💎  
+- Without a doubt! If you enjoy smart, thrilling heists with compelling characters, these shows are for you.
